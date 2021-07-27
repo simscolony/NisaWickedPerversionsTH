@@ -1,6 +1,5 @@
 
-# แปลฟรีและสามารถดาวโหลดฟรี ไม่มีการครอบลิงค์หาเงิน หาพบเห็นให้แจ้งแอดมินของเว็บนั้นๆ
-## ซื้อเกมได้ที่ [BUT SIMS4](https://www.cdkeys.com/pc/games/the-sims-4-standard-edition-pc-cd-key-origin?mw_aref=simscolony)
+# คำเตือน! มีการใช้คำและภาษาหยาบคาย โปรดใช้สติในการเล่น!
 
 ![LOGO_NisaWicked](https://static.loverslab.com/uploads/monthly_2021_03/WP_Welcome_Splash.png.8f0040688b7dc7f25f1ca429e1cfcc8c.png)
 
@@ -9,8 +8,8 @@
 
 | SIMSCOLONY THAI| NisaWicked 27-7-2021|
 | ------------- | ------------- |
-| Nisa’s Wicked V36| [ดาวโหลดแปล WickedWhims 36]() |
-| Nisa’s Wicked simfileshare V36| [simfileshare](http://www.simfileshare.net/download/2615211/) |
+| Nisa’s Wicked V36| [ดาวโหลดแปล NisaWicked 36]() |
+| Nisa’s Wicked simfileshare V36| [simfileshare]() |
 | Nisa’s Wicked loverslab V36| [loverslab]() |
 
 *สามารถดาวโหลดไฟล์ใดก็ได้ เป็นไฟล์เดียวกันหมด
