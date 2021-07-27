@@ -9,7 +9,7 @@
 | SIMSCOLONY THAI| NisaWicked 27-7-2021|
 | ------------- | ------------- |
 | Nisa’s Wicked V36| [ดาวโหลดแปล NisaWicked 36]() |
-| Nisa’s Wicked simfileshare V36| [simfileshare]() |
+| Nisa’s Wicked simfileshare V36| [simfileshare](http://www.simfileshare.net/download/2616332/) |
 | Nisa’s Wicked loverslab V36| [loverslab]() |
 
 *สามารถดาวโหลดไฟล์ใดก็ได้ เป็นไฟล์เดียวกันหมด
