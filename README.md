@@ -32,7 +32,10 @@ WickedWhims Mod made by TURBODRIVER   [Download wickedwhims](https://wickedwhims
 [loverslab](https://www.loverslab.com/files/file/5755-sims-4-thai-translation-for-wickedwhims-435140c-16-april-2019/)
 
 3.ดาวโหลด MOD หลัก Nisa’s Wicked 
-https://www.loverslab.com/files/file/5002-nisa%E2%80%99s-wicked-perversions/?__cf_chl_jschl_tk__=pmd_19045f817a6b73b97b9a5946bea6129e996a0afe-1627392054-0-gqNtZGzNAg2jcnBszQiO
+
+Patreon >https://www.patreon.com/NisaKsPervs 
+
+Public https://www.loverslab.com/files/file/5002-nisa%E2%80%99s-wicked-perversions/?__cf_chl_jschl_tk__=pmd_19045f817a6b73b97b9a5946bea6129e996a0afe-1627392054-0-gqNtZGzNAg2jcnBszQiO
 
 4.นำลงใส่ใน FLoder Mods
 ![บันทึกแบบเต็มหน้าจอ 27 ก ค  2564 202142 bmp](https://user-images.githubusercontent.com/13219372/127160921-8d2da4d9-af46-437a-97a5-816cc1d9ca05.jpg)
