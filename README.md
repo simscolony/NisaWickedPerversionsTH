@@ -1,9 +1,6 @@
 
 # คำเตือน! มีการใช้คำและภาษาหยาบคาย โปรดใช้สติในการเล่น!
-
-![LOGO_NisaWicked](https://static.loverslab.com/uploads/monthly_2021_03/WP_Welcome_Splash.png.8f0040688b7dc7f25f1ca429e1cfcc8c.png)
-
-
+![LOGO_NisaWicked](https://user-images.githubusercontent.com/13219372/127160345-5d459706-60a2-4d54-af88-2f1d6d224750.jpg)
 # แปลไทย Nisa’s Wicked 
 ## อัพเดท 8 สิงหาคม 2564 - อัตราการแปล 100%
 
@@ -41,7 +38,6 @@ Public https://www.loverslab.com/files/file/5002-nisa%E2%80%99s-wicked-perversio
 ![บันทึกแบบเต็มหน้าจอ 27 ก ค  2564 202142 bmp](https://user-images.githubusercontent.com/13219372/127160921-8d2da4d9-af46-437a-97a5-816cc1d9ca05.jpg)
 
 
-![LOGO_NisaWicked](https://user-images.githubusercontent.com/13219372/127160345-5d459706-60a2-4d54-af88-2f1d6d224750.jpg)
 
 # หากพบปัญหา แจ้งงานแปล
 ## ติดต่อสอบถามได้ที่ [SIMSCOLONY](https://www.facebook.com/SimsColony/)
