@@ -7,7 +7,7 @@
 | SIMSCOLONY THAI| NisaWicked 27-7-2021|
 | ------------- | ------------- |
 | Nisa’s Wicked V3| [ดาวโหลดแปล NisaWicked 3](https://github.com/simscolony/NisaWickedPerversions-_Traditional_THAI/raw/main/%5BSIMSCOLONY%5DNisaWickedPerversionsv_TH_V3_%5B5-8-2021%5D.package) |
-| Nisa’s Wicked simfileshare V3| [simfileshare](http://www.simfileshare.net/download/2647670/) |
+| Nisa’s Wicked simfileshare V3| [simfileshare](http://www.simfileshare.net/download/2647675/) |
 | Nisa’s Wicked loverslab V3| รออัพโหลด [loverslab]() |
 
 *สามารถดาวโหลดไฟล์ใดก็ได้ เป็นไฟล์เดียวกันหมด
