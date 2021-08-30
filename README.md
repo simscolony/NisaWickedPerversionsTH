@@ -1,14 +1,14 @@
 
-# คำเตือน! มีการใช้คำและภาษาหยาบคาย โปรดใช้สติในการเล่น!
+# คำเตือน! มีการใช้คำและภาษาหยาบคาย โปรดใช้สติในการเล่น! 
 ![LOGO_NisaWicked](https://user-images.githubusercontent.com/13219372/127160345-5d459706-60a2-4d54-af88-2f1d6d224750.jpg)
 # แปลไทย Nisa’s Wicked 
 ## อัพเดท 8 สิงหาคม 2564 - อัตราการแปล 100%
 
 | SIMSCOLONY THAI| NisaWicked 27-7-2021|
 | ------------- | ------------- |
-| Nisa’s Wicked V3| [ดาวโหลดแปล NisaWicked 3](https://github.com/simscolony/NisaWickedPerversions-_Traditional_THAI/raw/main/%5BSIMSCOLONY%5DNisaWickedPerversionsv_TH_V3_%5B5-8-2021%5D.package) |
-| Nisa’s Wicked simfileshare V3| [simfileshare](http://www.simfileshare.net/download/2647675/) |
-| Nisa’s Wicked loverslab V3| รออัพโหลด [loverslab]() |
+| Nisa’s Wicked V4| [ดาวโหลดแปล NisaWicked 4](https://github.com/simscolony/NisaWickedPerversions-_Traditional_THAI/raw/main/%5BSIMSCOLONY%5DNisaWickedPerversionsv_TH_V4_%5B31-8-2021%5D.package) |
+| Nisa’s Wicked V4 simfileshare| [ดาวโหลดแปล NisaWicked 4 simfileshare](http://www.simfileshare.net/download/2700518/) |
+
 
 *สามารถดาวโหลดไฟล์ใดก็ได้ เป็นไฟล์เดียวกันหมด
 กรุณาเลือกติดตั้ง WickedWhims เพิ่อใช้งานร่วมกัน
