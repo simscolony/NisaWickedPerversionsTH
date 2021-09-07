@@ -4,11 +4,12 @@
 # แปลไทย Nisa’s Wicked 
 ## อัพเดท 8 สิงหาคม 2564 - อัตราการแปล 100%
 
-| SIMSCOLONY THAI| NisaWicked 27-7-2021|
-| ------------- | ------------- |
-| Nisa’s Wicked V4| [ดาวโหลดแปล NisaWicked 4](https://github.com/simscolony/NisaWickedPerversions-_Traditional_THAI/raw/main/%5BSIMSCOLONY%5DNisaWickedPerversionsv_TH_V4_%5B31-8-2021%5D.package) |
-| Nisa’s Wicked V4 simfileshare| [ดาวโหลดแปล NisaWicked 4 simfileshare](http://www.simfileshare.net/download/2700518/) |
-
+| SIMSCOLONY THAI| NisaWicked 27-7-2021|รายละเอียด|
+| ------------- | ------------- |------------- |
+| Nisa’s Wicked V5| [ดาวโหลดแปล NisaWicked 5](https://github.com/simscolony/NisaWickedPerversions-_Traditional_THAI/raw/main/%5BSIMSCOLONY%5DNisaWickedPerversionsv_TH_V5_%5B7-9-2021%5D.package) |แปลไทยอย่างเดียวไม่มีตัวเล่น|
+| Nisa’s Wicked V5 Patreon| [ดาวโหลดแปล NisaWicked 5 Patreon](https://www.patreon.com/posts/55858098) |แปลไทยและตัวยัดภาษาไทย|
+| Nisa’s Wicked V5 simsharfile| [ดาวโหลดแปล NisaWicked 5 simfileshare](http://www.simfileshare.net/download/2724739/) |แปลไทยอย่างเดียวไม่มีตัวเล่น|
+| Nisa’s Wicked V5 Pack thai | [ดาวโหลดแปล NisaWicked 5 pack thai](http://www.simfileshare.net/download/2724740/) |ตัวยัดภาษาไทยพร้อมตัวเล่น|
 
 *สามารถดาวโหลดไฟล์ใดก็ได้ เป็นไฟล์เดียวกันหมด
 กรุณาเลือกติดตั้ง WickedWhims เพิ่อใช้งานร่วมกัน
