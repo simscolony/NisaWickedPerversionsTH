@@ -8,8 +8,7 @@
 | ------------- | ------------- |------------- |
 | Nisa’s Wicked V5| [ดาวโหลดแปล NisaWicked 5](https://github.com/simscolony/NisaWickedPerversions-_Traditional_THAI/raw/main/%5BSIMSCOLONY%5DNisaWickedPerversionsv_TH_V5_%5B7-9-2021%5D.package) |แปลไทยอย่างเดียวไม่มีตัวเล่น|
 | Nisa’s Wicked V5 Patreon| [ดาวโหลดแปล NisaWicked 5 Patreon](https://www.patreon.com/posts/55858098) |แปลไทยและตัวยัดภาษาไทย|
-| Nisa’s Wicked V5 simsharfile| [ดาวโหลดแปล NisaWicked 5 simfileshare](http://www.simfileshare.net/download/2724739/) |แปลไทยอย่างเดียวไม่มีตัวเล่น|
-| Nisa’s Wicked V5 Pack thai | [ดาวโหลดแปล NisaWicked 5 pack thai](http://www.simfileshare.net/download/2724740/) |ตัวยัดภาษาไทยพร้อมตัวเล่น|
+
 
 *สามารถดาวโหลดไฟล์ใดก็ได้ เป็นไฟล์เดียวกันหมด
 กรุณาเลือกติดตั้ง WickedWhims เพิ่อใช้งานร่วมกัน
