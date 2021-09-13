@@ -6,8 +6,8 @@
 
 | SIMSCOLONY THAI| NisaWicked 27-7-2021|รายละเอียด|
 | ------------- | ------------- |------------- |
-| Nisa’s Wicked V5| [ดาวโหลดแปล NisaWicked 5](https://github.com/simscolony/NisaWickedPerversions-_Traditional_THAI/raw/main/%5BSIMSCOLONY%5DNisaWickedPerversionsv_TH_V5_%5B7-9-2021%5D.package) |แปลไทยอย่างเดียวไม่มีตัวเล่น|
-| Nisa’s Wicked V5 Patreon| [ดาวโหลดแปล NisaWicked 5 Patreon](https://www.patreon.com/posts/55858098) |แปลไทยและตัวยัดภาษาไทย|
+| Nisa’s Wicked V6| [ดาวโหลดแปล NisaWicked 6](https://github.com/simscolony/NisaWickedPerversions-_Traditional_THAI/raw/main/%5BSIMSCOLONY%5DNisaWickedPerversionsv_TH_V6_%5B13-9-2021%5D.package) |แปลไทยอย่างเดียวไม่มีตัวเล่น|
+| Nisa’s Wicked V6 Patreon| [ดาวโหลดแปล NisaWicked 6 Patreon]() |แปลไทยและตัวยัดภาษาไทย|
 
 
 *สามารถดาวโหลดไฟล์ใดก็ได้ เป็นไฟล์เดียวกันหมด
