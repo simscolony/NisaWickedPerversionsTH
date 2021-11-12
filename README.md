@@ -6,15 +6,16 @@
 
 | SIMSCOLONY THAI| NisaWicked 18-10-2021|รายละเอียด|
 | ------------- | ------------- |------------- |
-| Nisa’s Wicked V8| [ดาวโหลดแปล NisaWicked 8](https://github.com/simscolony/NisaWickedPerversions-_Traditional_THAI/raw/main/%5BSIMSCOLONY%5DNisaWickedPerversionsv_TH_V8_%5B18-10-2021%5D.package) |แปลไทยอย่างเดียวไม่มีตัวเล่น|
-| Nisa’s Wicked V8 Patreon| [ดาวโหลดแปล NisaWicked 6 Patreon](https://www.patreon.com/posts/57535655) |แปลไทยและตัวยัดภาษาไทย|
+| Nisa’s Wicked V9| [ดาวโหลดแปล NisaWicked 8](https://github.com/simscolony/NisaWickedPerversions-_Traditional_THAI/raw/main/%5BSIMSCOLONY%5D%20NisasWickedPerversions%2031GD_%5B12-11-2021%5D.package) |แปลไทยอย่างเดียวไม่มีตัวเล่น|
+| Nisa’s Wicked V9 Patreon| [ดาวโหลดแปล NisaWicked 9 Patreon]() |แปลไทยและตัวยัดภาษาไทย|
+| simfileshare V9 Patreon| [ดาวโหลดแปล NisaWicked 9 Patreon](http://www.simfileshare.net/download/2807847/) |แปลไทยและตัวยัดภาษาไทย|
 
 
 *สามารถดาวโหลดไฟล์ใดก็ได้ เป็นไฟล์เดียวกันหมด
 กรุณาเลือกติดตั้ง WickedWhims เพิ่อใช้งานร่วมกัน
 
 # Update Last Support 
-## Public Version Nisa’s Wicked Perversions LL.3.1gb
+## Public Version Nisa’s Wicked Perversions LL.3.1gd
 ##  patreon Version NisaWickedPerversions  V.2.2.5d
 
 ### HOW TO Downlodws MOD PLAY 
