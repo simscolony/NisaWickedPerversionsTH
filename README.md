@@ -1,7 +1,7 @@
 
 # คำเตือน! มีการใช้คำและภาษาหยาบคาย โปรดใช้สติในการเล่น! 
 ![LOGO_NisaWicked](https://user-images.githubusercontent.com/13219372/127160345-5d459706-60a2-4d54-af88-2f1d6d224750.jpg)
-# แปลไทย Nisa’s Wicked 
+# แปลไทย [SIMSCOLONY ]Nisa’s Wicked 
 ## อัพเดท 18 ตุลาคม 2564 - อัตราการแปล 100%
 
 | SIMSCOLONY THAI| NisaWicked 18-10-2021|รายละเอียด|
