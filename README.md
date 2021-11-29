@@ -2,13 +2,12 @@
 # คำเตือน! มีการใช้คำและภาษาหยาบคาย โปรดใช้สติในการเล่น! 
 ![LOGO_NisaWicked](https://user-images.githubusercontent.com/13219372/127160345-5d459706-60a2-4d54-af88-2f1d6d224750.jpg)
 # แปลไทย [SIMSCOLONY ]Nisa’s Wicked 
-## อัพเดท 18 ตุลาคม 2564 - อัตราการแปล 100%
+## อัพเดท 29 พฤศจิกายน 2564 - อัตราการแปล 100%
 
 | SIMSCOLONY THAI| NisaWicked 18-10-2021|รายละเอียด|
 | ------------- | ------------- |------------- |
-| Nisa’s Wicked V9| [ดาวโหลดแปล NisaWicked 9](https://github.com/simscolony/NisaWickedPerversions-_Traditional_THAI/raw/main/%5BSIMSCOLONY%5D%20NisasWickedPerversions%2031GD_%5B12-11-2021%5D.package) |แปลไทยอย่างเดียวไม่มีตัวเล่น|
-| Nisa’s Wicked V9 Patreon| [ดาวโหลดแปล NisaWicked 9 Patreon]() |แปลไทยและตัวยัดภาษาไทย|
-| simfileshare V9 Patreon| [ดาวโหลดแปล NisaWicked 9 Patreon](http://www.simfileshare.net/download/2807847/) |แปลไทยและตัวยัดภาษาไทย|
+| Nisa’s Wicked V9| [ดาวโหลดแปล NisaWicked 10](https://github.com/simscolony/NisaWickedPerversions-_Traditional_THAI/raw/main/%5BSIMSCOLONY%5D_Nisas32_TH%20_%5B29-11-2021%5D.package) |แปลไทยอย่างเดียวไม่มีตัวเล่น|
+| Nisa’s Wicked V10  simfileshare | [ดาวโหลดแปล NisaWicked 9 Patreon](http://www.simfileshare.net/download/2807847/) |แปลไทยและตัวยัดภาษาไทย|
 
 
 *สามารถดาวโหลดไฟล์ใดก็ได้ เป็นไฟล์เดียวกันหมด
