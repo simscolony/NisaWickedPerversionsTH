@@ -15,7 +15,7 @@
 
 # Update Last Support 
 ## Public Version Nisa’s Wicked Perversions LL.3.2gd
-##  patreon Version NisaWickedPerversions  V.2.2.6
+##  patreon Version NisaWickedPerversions  V.2.2.6ca
 
 
 ### HOW TO Downlodws MOD PLAY 
