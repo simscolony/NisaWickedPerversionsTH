@@ -7,7 +7,7 @@
 | SIMSCOLONY THAI| NisaWicked 26-10-2022|รายละเอียด|
 | ------------- | ------------- |------------- |
 | Nisa’s Wicked V11| [ดาวโหลดแปล NisaWicked 10](https://github.com/simscolony/NisaWickedPerversions-_Traditional_THAI/raw/main/%5BSIMSCOLONY%5D_Nisas33_TH%20_%5B26-01-2022%5D.package) |แปลไทยอย่างเดียว|
-| Nisa’s Wicked V11  simfileshare | [ดาวโหลดแปล NisaWicked 10 พร้อมตัวเล่น](http://www.simfileshare.net/download/2942952/) |แปลไทยและตัวยัดภาษาไทย|
+| Nisa’s Wicked V11  simfileshare | [ดาวโหลดแปล NisaWicked 10 พร้อมตัวเล่น](http://www.simfileshare.net/download/2942952/) |แปลไทย พร้อมตัวเล่น สำหรับ MAC และเครื่องที่มีปัญหาในการลง|
 
 
 *สามารถดาวโหลดไฟล์ใดก็ได้ เป็นไฟล์เดียวกันหมด
