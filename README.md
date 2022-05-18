@@ -6,7 +6,7 @@
 
 | SIMSCOLONY THAI| NisaWicked 17-03-2022|รายละเอียด|
 | ------------- | ------------- |------------- |
-| Nisa’s Wicked แปลไทยเท่านั้นไม่มีตัวเล่น | [ดาวโหลดเฉพราะแปลไทย Nisa](https://modsfire.com/bG3Wk4Ey57bDZ8H) |แปลไทยอย่างเดียว ไม่มีไฟล์เล่น โปรดโหลดดแยกต่างหาก|
+| Nisa’s Wicked แปลไทยเท่านั้นไม่มีตัวเล่น | [ดาวโหลดเฉพราะแปลไทย Nisa]([https://modsfire.com/bG3Wk4Ey57bDZ8H](https://github.com/simscolony/NisaWickedPerversionsTH/raw/main/%5BSIMSCOLONY%5D_NisasWickedPerversions_Th_%5B11-03-2022%5D.package)) |แปลไทยอย่างเดียว ไม่มีไฟล์เล่น โปรดโหลดดแยกต่างหาก|
 | Nisa’s Wicked  แปลไทยพร้อมตัวเล่น | [ตัวเล่นพร้อมแปลไทย](https://modsfire.com/idtaL668SmbuvfI) |แปลไทย พร้อมตัวเล่นลงแล้วเล่นได้ทันที สำหรับ MAC และเครื่องที่มีปัญหาในการลง|
 
 
