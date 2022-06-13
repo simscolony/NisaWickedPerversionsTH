@@ -21,19 +21,17 @@
 ### HOW TO Downlodws MOD PLAY 
 
 # วิธีการลง
-1. ติดตั้ง MOD ภาพไทย
-https://simscolony.github.io/TS4THDEMO/
+1. ติดตั้ง MOD ภาพไทย [Download TS4THDEMO](https://simscolony.github.io/TS4THDEMO/)
 
-2. ดาวโหลด MOD หลัก WickedWhims  รุ่นฟรีดาวโหลดทาง
-https://turbodriver.itch.io/wickedwhims
+2. ดาวโหลด MOD หลัก WickedWhims  รุ่นฟรีดาวโหลดทาง[Download Office wickedwhims](https://turbodriver.itch.io/wickedwhims/)
 WickedWhims Mod made by TURBODRIVER   [Download wickedwhims](https://wickedwhimsmod.com/download/) OR
 [loverslab](https://www.loverslab.com/files/file/5755-sims-4-thai-translation-for-wickedwhims-435140c-16-april-2019/)
 
 3.ดาวโหลด MOD หลัก Nisa’s Wicked 
 
-Patreon >https://www.patreon.com/NisaKsPervs 
+Patreon >[Download NisaKsPervs](https://www.patreon.com/NisaKsPervs)
 
-Public https://www.loverslab.com/files/file/5002-nisa%E2%80%99s-wicked-perversions/?__cf_chl_jschl_tk__=pmd_19045f817a6b73b97b9a5946bea6129e996a0afe-1627392054-0-gqNtZGzNAg2jcnBszQiO
+Public [Download loverslab Nisa](https://www.loverslab.com/files/file/5002-nisa%E2%80%99s-wicked-perversions/?__cf_chl_jschl_tk__=pmd_19045f817a6b73b97b9a5946bea6129e996a0afe-1627392054-0-gqNtZGzNAg2jcnBszQiO)
 
 4.นำลงใส่ใน FLoder Mods
 ![บันทึกแบบเต็มหน้าจอ 27 ก ค  2564 202142 bmp](https://user-images.githubusercontent.com/13219372/127160921-8d2da4d9-af46-437a-97a5-816cc1d9ca05.jpg)
