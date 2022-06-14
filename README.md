@@ -7,6 +7,7 @@
 | SIMSCOLONY THAI| NisaWicked 15-06-2022|รายละเอียด|
 | ------------- | ------------- |------------- |
 | Nisa’s Wicked แปลไทยเท่านั้นไม่มีตัวเล่น | [ดาวโหลดเฉพราะแปลไทย Nisa](https://github.com/simscolony/NisaWickedPerversionsTH/raw/main/%5BSIMSCOLONY%5D_NisaWickedPerversions_TH_%5B15-6-2022%5D.package) |แปลไทยอย่างเดียว ไม่มีไฟล์เล่น โปรดโหลดดแยกต่างหาก|
+| Nisa’s Wicked สำหรับ MAC และ Windows|   [simfileshare แปลไทย Nisa พร้อมตัวเล่น](http://www.simfileshare.net/download/3237723/) |แปลไทย พร้อมตัวเล่น สำหรับ MAC และ Windows สำหรับเครื่องที่ลงลิงค์ 1-2 แล้วไม่ขึ้น ไม่ต้องโหลด Wicked ภาษาอังกฤษมาลง|
 
 
 
@@ -14,7 +15,7 @@
 กรุณาเลือกติดตั้ง WickedWhims เพิ่อใช้งานร่วมกัน
 
 # Update Last Support 
-## Public Version Nisa’s Wicked Perversions LL.3.3bc
+## Public Version Nisa’s Wicked Perversions LL.3.3ca
 ##  patreon Version Nisa's Wicked Perversions 2.2.6eb
 
 
