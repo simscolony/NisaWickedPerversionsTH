@@ -4,7 +4,7 @@
 # แปลไทย [SIMSCOLONY ]Nisa’s Wicked 
 ## อัพเดท 18 สิงหาคม 2565 - อัตราการแปล 100%
 
-| SIMSCOLONY THAI| NisaWicked 18-08-2022|รายละเอียด|
+| SIMSCOLONY THAI| NisaWicked 10-06-2023|รายละเอียด|
 | ------------- | ------------- |------------- |
 | Nisa’s Wicked แปลไทยเท่านั้นไม่มีตัวเล่น | [ดาวโหลดเฉพราะแปลไทย Nisa](https://github.com/simscolony/NisaWickedPerversionsTH/raw/main/%5BSIMSCOLONY%5D%20NisaWicked_TH%20%5B18-8-2022%5D.package) |แปลไทยอย่างเดียว ไม่มีไฟล์เล่น โปรดโหลดดแยกต่างหาก|
 
@@ -13,9 +13,9 @@
 กรุณาเลือกติดตั้ง WickedWhims เพิ่อใช้งานร่วมกัน
 
 # Update Last Support 
-## Public Version Nisa’s Wicked Perversions LL.3.3eb  - 5 August 2022
-##  patreon Version Nisa's Wicked Perversions 2.2.6fb  - 5 August 2022
+* Public Version  Nisa’s Wicked Perversions LL.3.3ie  - 11 JUNE 2023
 
+---------------------------------------------------------------------------
 
 ### HOW TO Downlodws MOD PLAY 
 
