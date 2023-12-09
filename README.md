@@ -2,9 +2,9 @@
 # คำเตือน! มีการใช้คำและภาษาหยาบคาย โปรดใช้สติในการเล่น! 
 ![LOGO_NisaWicked](https://user-images.githubusercontent.com/13219372/127160345-5d459706-60a2-4d54-af88-2f1d6d224750.jpg)
 # แปลไทย [SIMSCOLONY ]Nisa’s Wicked 
-## อัพเดท 11 มิถุนายน 2566 - อัตราการแปล 100%
+## อัพเดท 9 ธันวาคม 2566 - อัตราการแปล 100%
 
-| SIMSCOLONY THAI| NisaWicked 11-08-2023 |รายละเอียด|
+| SIMSCOLONY THAI| NisaWicked  |รายละเอียด|
 | ------------- | ------------- |------------- |
 | Nisa’s Wicked แปลไทยเท่านั้นไม่มีตัวเล่น | [ดาวโหลดเฉพราะแปลไทย Nisa](https://github.com/simscolony/NisaWickedPerversionsTH/blob/main/%5BSIMSCOLONY%5D%20NISA%20TH%202023.package) |แปลไทยอย่างเดียว ไม่มีไฟล์เล่น โปรดโหลดดแยกต่างหาก|
 
@@ -13,7 +13,7 @@
 กรุณาเลือกติดตั้ง WickedWhims เพิ่อใช้งานร่วมกัน
 
 # Update Last Support 
-* Public Version  NisaWickedPerversionsvLL_3_3if - 2023
+* Public Version  Nisa's Wicked Perversions LL.3.3j - 2023
 
 ---------------------------------------------------------------------------
 
