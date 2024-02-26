@@ -2,11 +2,11 @@
 # คำเตือน! มีการใช้คำและภาษาหยาบคาย โปรดใช้สติในการเล่น! 
 ![LOGO_NisaWicked](https://user-images.githubusercontent.com/13219372/127160345-5d459706-60a2-4d54-af88-2f1d6d224750.jpg)
 # แปลไทย [SIMSCOLONY ]Nisa’s Wicked 
-## อัพเดท 9 ธันวาคม 2566 - อัตราการแปล 100%
+## อัพเดท 26 กุมภาพันธ์ 2567 - อัตราการแปล 100%
 
 | SIMSCOLONY THAI| NisaWicked  |รายละเอียด|
 | ------------- | ------------- |------------- |
-| Nisa’s Wicked แปลไทยเท่านั้นไม่มีตัวเล่น | [ดาวโหลดเฉพราะแปลไทย Nisa](https://github.com/simscolony/NisaWickedPerversionsTH/raw/main/%5BSIMSCOLONY%5D%20NISA%20TH%202023.package) |แปลไทยอย่างเดียว ไม่มีไฟล์เล่น โปรดโหลดดแยกต่างหาก|
+| Nisa’s Wicked แปลไทยเท่านั้นไม่มีตัวเล่น | [ดาวโหลดเฉพราะแปลไทย Nisa](https://github.com/simscolony/NisaWickedPerversionsTH/raw/main/%5BSIMSCOLONY%5D_NisasWickedPerversions_TH_2024.package) |แปลไทยอย่างเดียว ไม่มีไฟล์เล่น โปรดโหลดดแยกต่างหาก|
 | Nisa’s Wicked ตัวเล่น | [ดาวโหลดเฉพราะแปลไทย Nisa](https://www.loverslab.com/files/file/5002-nisa%E2%80%99s-wicked-perversions) |แปลไทยอย่างเดียว ไม่มีไฟล์เล่น โปรดโหลดดแยกต่างหาก|
 
 
@@ -14,7 +14,8 @@
 กรุณาเลือกติดตั้ง WickedWhims เพิ่อใช้งานร่วมกัน
 
 # Update Last Support 
-* Public Version  Nisa's Wicked Perversions LL_3_3 - 2023
+* Public Version  Nisa's Wicked Perversions LL.3.3ka
+* Patreon Version Nisa’s Wicked Perversions  2.2.6l (Patreon) (12.02.2024) NSFW
 ---------------------------------------------------------------------------
 ### HOW TO Downlodws MOD PLAY 
 
