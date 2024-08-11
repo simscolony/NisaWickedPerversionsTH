@@ -2,7 +2,7 @@
 # คำเตือน! มีการใช้คำและภาษาหยาบคาย โปรดใช้สติในการเล่น! 
 ![LOGO_NisaWicked](https://user-images.githubusercontent.com/13219372/127160345-5d459706-60a2-4d54-af88-2f1d6d224750.jpg)
 # แปลไทย [SIMSCOLONY ]Nisa’s Wicked 
-## อัพเดท 21 มีนาคม 2567 - อัตราการแปล 100%
+## อัพเดท 12 สิงหาคม 2567 - อัตราการแปล 100%
 
 | SIMSCOLONY THAI| NisaWicked  |รายละเอียด|
 | ------------- | ------------- |------------- |
@@ -14,8 +14,9 @@
 กรุณาเลือกติดตั้ง WickedWhims เพิ่อใช้งานร่วมกัน
 
 # Update Last Support 
-* Public Version  Nisa's Wicked Perversions LL.3.3ka
-* Patreon Version Nisa’s Wicked Perversions  2.2.6l (Patreon) (12.02.2024) NSFW
+* Public Version [Nisa’s Wicked Perversions LL.3.3mc](https://www.loverslab.com/files/file/5002-nisa%E2%80%99s-wicked-perversions/page/6/))
+* Patreon Version NNisa's Wicked Perversions 2.2.7db
+* Wicked Perversions Summer Cleanser v2.2.7db + Nisa K.'s Nik Knacks
 ---------------------------------------------------------------------------
 ### HOW TO Downlodws MOD PLAY 
 
