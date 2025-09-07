@@ -17,7 +17,7 @@
 * Public Version Nisa’s Wicked Perversions LL.3.5da loverslab [Nisa’s Wicked Perversions](https://www.loverslab.com/files/file/5002-nisa%E2%80%99s-wicked-perversions/page/6/))
 * Public Version Nisa’s Wicked Perversions LL.3.5da wicked offical [Nisa’s Wicked Perversions](https://wicked.cc/mods/nisa-k/nisas-wicked-perversions/))
 * Patreon Version NNisa's Wicked Perversions 
-* Wicked Perversions Summer Cleanser v2.2.7db + Nisa K.'s Nik Knacks
+* Wicked Perversions Summer Cleanser v2.2.9cab + Nisa K.'s Nik Knacks
 ---------------------------------------------------------------------------
 ### HOW TO Downlodws MOD PLAY 
 
