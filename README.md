@@ -2,20 +2,19 @@
 # คำเตือน! มีการใช้คำและภาษาหยาบคาย โปรดใช้สติในการเล่น! 
 ![LOGO_NisaWicked](https://user-images.githubusercontent.com/13219372/127160345-5d459706-60a2-4d54-af88-2f1d6d224750.jpg)
 # แปลไทย [SIMSCOLONY ]Nisa’s Wicked 
-## อัพเดท 26 พฤศจิกายน 2568 - อัตราการแปล 100%
+## อัพเดท 10 กันยายน 2569 - อัตราการแปล 100%
 
 | SIMSCOLONY THAI| NisaWicked  |รายละเอียด|
 | ------------- | ------------- |------------- |
-| Nisa’s Wicked แปลไทยเท่านั้นไม่มีตัวเล่น | [ดาวโหลดเฉพราะแปลไทย Nisa](https://github.com/simscolony/NisaWickedPerversionsTH/releases/download/NISA_TH_2025/SIMSCOLONY_Nisa_Thai.rar) |แปลไทยอย่างเดียว ไม่มีไฟล์เล่น โปรดโหลดดแยกต่างหาก|
-| Nisa’s Wicked ตัวเล่น | [ดาวโหลดตัวเล่น Nisa](https://www.loverslab.com/files/file/5002-nisa%E2%80%99s-wicked-perversions) |แปลไทยอย่างเดียว ไม่มีไฟล์เล่น โปรดโหลดดแยกต่างหาก|
+| Nisa’s Wicked แปลไทยเท่านั้นไม่มีตัวเล่น | [ดาวโหลดเฉพราะแปลไทย Nisa](https://github.com/simscolony/NisaWickedPerversionsTH/releases/download/NISA_THAI_2026/SIMSCOLONY._NISA_THAI_2026.package) |แปลไทยอย่างเดียว ไม่มีไฟล์เล่น โปรดโหลดดแยกต่างหาก|
+| Nisa’s Wicked ตัวเล่น | [ดาวโหลดตัวเล่น Nisa](https://www.loverslab.com/files/file/5002-nisa%E2%80%99s-wicked-perversions) |แปลไทยอย่างเดียว ไม่มีไฟล์เล่น โปรดโหลดดแยกต่างหาก โปรดลง wickedwhime ด้วยในการเล่น|
 
 
 *สามารถดาวโหลดไฟล์ใดก็ได้ เป็นไฟล์เดียวกันหมด
 กรุณาเลือกติดตั้ง WickedWhims เพิ่อใช้งานร่วมกัน
 
 # Update Last Support 
-* Public Version Nisa’s Wicked Perversions LL.3.6a (05.11.2025 loverslab [Nisa’s Wicked Perversions](https://www.loverslab.com/files/file/5002-nisa%E2%80%99s-wicked-perversions/page/6/))
-* Public Version Nisa’s Wicked Perversions LL.3.6a (05.11.2025 wicked offical [Nisa’s Wicked Perversions](https://wicked.cc/mods/nisa-k/nisas-wicked-perversions/))
+* NisaWickedPerversionsvLL_3_9 (05.11.2025 loverslab [Nisa’s Wicked Perversions](https://www.loverslab.com/files/file/5002-nisa%E2%80%99s-wicked-perversions/page/6/))
 * Patreon Version NNisa's Wicked Perversions 2.3.1b (07.11.2025)
 * Wicked Perversions Summer Cleanser v2.2.9cab + Nisa K.'s Nik Knacks 
 ---------------------------------------------------------------------------
